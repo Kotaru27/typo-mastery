@@ -1,1 +1,1 @@
-https://kotaru27.github.io/creative-tools/
+https://kotaru27.github.io/typo-mastery/
